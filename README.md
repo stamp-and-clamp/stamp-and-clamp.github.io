@@ -1,2 +1,1 @@
-# stamp-and-clamp.github.io
-add KEKW
+why you look?
